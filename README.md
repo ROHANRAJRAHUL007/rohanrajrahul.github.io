@@ -1,5 +1,5 @@
 
-# Rohan Rahul Raj
+# Rohan Raj Rahul
 
 Electrical and Electronics Engineering graduate from **NITK Surathkal**, with interests in migration, refugee law, public policy, and interdisciplinary research at the intersection of technology, law, economics, and society.
 
